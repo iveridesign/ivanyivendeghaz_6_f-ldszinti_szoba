@@ -1,0 +1,1 @@
+ivanyivendeghaz_6_földszinti_szoba
